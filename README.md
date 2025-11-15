@@ -1,6 +1,6 @@
 # Raja Haris Nauman
 
-📧 rajaharis98@hotmail.com | 📞 +92 33 65 177934  
+📧 rajaharis98@hotmail.com 
   
 🌐 **Website**:  https://rajaharisnauman.pages.dev/  
 🐈‍⬛ **GitHub**:   https://github.com/RoastedKaju  
